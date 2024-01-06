@@ -4,6 +4,8 @@
 
 <br/>
 
+<h2><a href="https://webbtelescope.org/news/first-images/gallery">James Web Gallery</a></h2>
+
 ## Table of contents
 
 
